@@ -9,3 +9,12 @@ I listed my two bedroom Town House on Airbnb however I would like to use tools e
 **OAKLANDS PUMP SWITHC ON**
 
 ![](/oaklands-pump-switch-on.jpeg)
+
+**OAKLANDS FRONT DOOR DIGITAL LOCK**
+
+![](/front-door-digital-lock-for-oaklands.jpeg)
+
+
+**OAKLANDS DIGITAL PADLOCK**
+
+![](/oaklands-digital-padlock.jpeg)
