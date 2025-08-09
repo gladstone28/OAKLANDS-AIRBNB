@@ -14,7 +14,6 @@ I listed my two bedroom Town House on Airbnb however I would like to use tools e
 
 ![](/front-door-digital-lock-for-oaklands.jpeg)
 
-
 **OAKLANDS DIGITAL PADLOCK**
 
 ![](/oaklands-digital-padlock.jpeg)
