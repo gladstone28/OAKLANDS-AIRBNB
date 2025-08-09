@@ -6,7 +6,7 @@ I listed my two bedroom Town House on Airbnb however I would like to use tools e
 
 ![](/oaklands-pump-switch-off.jpeg)
 
-**OAKLANDS PUMP SWITHC ON**
+**OAKLANDS PUMP SWITCH ON**
 
 ![](/oaklands-pump-switch-on.jpeg)
 
